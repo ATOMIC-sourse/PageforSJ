@@ -1,1 +1,1 @@
-# <font color="BlueViolet">*Твой подарок находится под кроватью.*</font>🎅
+# <font color="BlueViolet">Твой подарок находится под кроватью.</font>🎅
